@@ -13,3 +13,6 @@ Choi Ung seems *naive and a free spirited man*, but he wants to have something f
 
 **Language**
 - Korean
+
+**Network**
+- SBS TV
