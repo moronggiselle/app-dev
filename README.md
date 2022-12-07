@@ -10,3 +10,6 @@ Choi Ung seems *naive and a free spirited man*, but he wants to have something f
 **Genre**
 1. Romantic Comedy
 2. Coming of Age
+
+**Language**
+- Korean
