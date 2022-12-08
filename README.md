@@ -16,3 +16,5 @@ Choi Ung seems *naive and a free spirited man*, but he wants to have something f
 
 **Network**
 - SBS TV
+
+## H2 For more information about my favorite series, check out this [website](https://asianwiki.com/Our_Beloved_Summer)
